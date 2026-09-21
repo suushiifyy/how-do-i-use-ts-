@@ -1,2 +1,1 @@
-# how-do-i-use-ts-
-uhhhhh
+https://tenor.com/tmR1yWxKFZz.gif
